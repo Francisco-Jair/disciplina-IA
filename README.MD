@@ -1,0 +1,1 @@
+## Trabalhos da disciplina de IA - 2020.2
